@@ -3,8 +3,8 @@ first repository. no idea what I am doing
 
 Hello World
 
-I am trying very hard to find time to learn to code
+In the complicated labyrinths of our minds
 
-It seems like a challenge and also a necessity to learn something new
+Someone dares to intrude
 
-It now seems unachievable and exiciting!!!
+You'll be surprised that the voices where always you!
