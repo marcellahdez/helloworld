@@ -3,8 +3,8 @@ first repository. no idea what I am doing
 
 Hello World
 
-In the complicated labyrinths of our minds
+If you are here right now you might be a night owl
 
-Someone dares to intrude
+or might live in a very far away land
 
-You'll be surprised that the voices where always you!
+-103°,19° is my location
